@@ -1,1 +1,1 @@
-# https://ardaurunn/malazgirt.github.io
+# https://ardaurunn.github.io/malazgirt.github.io
